@@ -1,1 +1,5 @@
 # icphub_uew-workshop
+NAME : ARTHUR SAMUEL ESSUMAN 
+INDEX NUMBER : 5251570185 
+MOBILE MONEY NUMBER AND NAME : 0559114592 - Samuel Arthur Essuman 
+EMAIL ADDRESS : samuelinfoctess2580@gmail.com
